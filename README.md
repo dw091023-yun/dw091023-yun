@@ -7,6 +7,6 @@
 
  
   - [Github](https://github.com/apps/desktop?locale=ko-KR)
-  - [Instagram](https://www.instagram.com/)
+  - [Instagram](https://www.instagram.com/yun.yundongug/)
 
 
